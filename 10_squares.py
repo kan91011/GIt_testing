@@ -26,4 +26,11 @@ for i in range(8):
  envlknlkenjrv
  evrnlkejnvlkevnre
  kwlnvlrnjnrwj
+ kspdfoksfokslfmlkemoven
+ vevlekmveknvovn
+ rej;lkf;lfndsfwf
+ nekvnejnrvon;e
+ evnelkjrnvopenvpkrv
+ vnelkvreornoev
+
 
